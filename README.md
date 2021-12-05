@@ -1,3 +1,3 @@
 - 👋 Hola, soy @Kevdez
 - 👀 Me interesa el desarrollo de paginas web
-- 🌱 Estoy aprendiendo sobre muchas cosas.
+- 🌱 Estoy aprendiendo muchas cosas.
